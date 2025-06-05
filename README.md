@@ -30,4 +30,4 @@ These giveaways weren’t minted for show — they were created to share. But if
 ---
 
 **Join the glitch revolution, fork the code, and keep supporting real art on objkt.**
-— *\Reyrove* 💻✨
+— *Reyrove* 💻✨
